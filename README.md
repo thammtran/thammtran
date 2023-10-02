@@ -1,5 +1,7 @@
 ### Hi there 👋
-
+ <img src="https://media3.giphy.com/media/aUovxH8Vf9qDu/giphy.gif](https://user-images.githubusercontent.com/74038190/212750155-3ceddfbd-19d3-40a3-87af-8d329c8323c4.gif"/>
+ 
+🌱 I’m currently learning to become a web developer
 <!--
 **thammtran/thammtran** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
