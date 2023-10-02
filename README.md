@@ -1,9 +1,8 @@
 ### Hi there 👋
  <img src="https://user-images.githubusercontent.com/74038190/212750155-3ceddfbd-19d3-40a3-87af-8d329c8323c4.gif"/>
-<html> <body><p> <link> There are rain sounds playing in the background. https://rainymood.com/ </link> </p>
-      <embed src="https://rainymood.com/)" loop="true" autostart="true" width="2"
-         height="0"> </body> </html>
-         
+         <audio loop autoplay>
+<source src="https://rainymood.com" type="audio/mp3">
+</audio>
 🌱 I’m currently learning to become a web developer
 <!--
 **thammtran/thammtran** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
