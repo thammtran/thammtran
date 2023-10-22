@@ -1,9 +1,9 @@
-### Hi there 👋
- <img src="https://user-images.githubusercontent.com/74038190/212750155-3ceddfbd-19d3-40a3-87af-8d329c8323c4.gif"/>
-         <audio loop autoplay>
-<source src="https://rainymood.com" type="audio/mpeg">
-</audio>
+### Hi there 👋 Welcome to my profile ✨
 
+ <img src="https://user-images.githubusercontent.com/74038190/212750155-3ceddfbd-19d3-40a3-87af-8d329c8323c4.gif"/>
+         <audio loop autoplay src="https://rainymood.com" type="audio/mpeg">
+         <a href="https://rainymood.com"> 
+</audio>
 <!--
 **thammtran/thammtran** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
