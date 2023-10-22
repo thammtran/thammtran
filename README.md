@@ -1,7 +1,7 @@
-
+<p align="center"> <img src="https://readme-typing-svg.demolab.com?font=Monospace&pause=1000&color=F09BF7&random=false&width=435&lines=Hi%F0%9F%91%8B+My+name+is+Tham.+Nice+to+meet+you!;"/></p>
 ╔══════════ʚ*.·:·.☽✧<img width="500" height="150" src="https://github.com/thammtran/thammtran/assets/145900344/dedaa68e-b4fd-4cc5-9801-e7b7a8c176a3"/> ✧☾.·:·.*ɞ════════════╗ <br><br>
 <p><img title="sailor moon but she&#39;s a lofi girl bc she deserves it" href="https://youtu.be/nTQUwghvy5Q" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen src="https://i.pinimg.com/originals/cd/8e/82/cd8e82fcb59e4e274ce6e296a5caac5e.gif"/>  </p> <br>
-<p align="center">    -------------♡ʚ🍰ɞ♡-------------  </p> <br>
+<p align="center">    -------------♡ʚ🍰ɞ♡-------------  </p> <br> 
 <p align="center">⤷ ⊹₊ ㆍ✿ ㆍ<strong>𝚗𝚊𝚖𝚎 : </strong> 𝚃𝚑𝚊𝚖 𝚃𝚛𝚊𝚗 (𝚜𝚑𝚎/𝚑𝚎𝚛) 🌸🌷</p> <br>
 <p align="center">⤷ ⊹ ˚ . <strong>𝚕𝚘𝚌𝚊𝚝𝚒𝚘𝚗 : </strong> 𝚖𝚎𝚕𝚋𝚘𝚞𝚛𝚗𝚎, 𝚟𝚒𝚌𝚝𝚘𝚛𝚒𝚊 🌏🦘 </p> <br>
 <p align="center">⤷ ₊‧.°.⋆ <strong>𝚋𝚒𝚛𝚝𝚑𝚍𝚊𝚢 : </strong> 𝚗𝚘𝚟𝚎𝚖𝚋𝚎𝚛 𝟷𝟽 (𝚜𝚌𝚘𝚛𝚙𝚒𝚘) 🥳 </p> <br>
@@ -20,12 +20,12 @@
 <p align="center"> ⋆  𝚜𝚒𝚗𝚐𝚒𝚗𝚐 👩‍🎤 </p>
 <p align="center"><p align="center"> <img src="https://spotify-github-profile.vercel.app/api/view?uid=y4cybxhvrhxezqsn20byqpha7&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=a275f5&bar_color_cover=false"/> </p>
 <p align="center"> -------------♡ʚ🍨ɞ♡------------- </p>
-<p align="center"> <img src="https://github.com/thammtran/thammtran/assets/145900344/69724181-6f88-44da-be7c-cc98f62c1089"/> </p> 
+<p align="center"> <img width="500" src="https://github.com/thammtran/thammtran/assets/145900344/d2b44463-c389-4672-a092-a796f38bc2ed"/> </p>
 <p align="center">⤷₊‧.°.⋆ <strong> 𝚌𝚘𝚗𝚝𝚊𝚌𝚝 </strong> •˚₊‧⋆.</p>  
 <p align="center"> ⋆ <strong>𝚕𝚒𝚗𝚔𝚎𝚍𝚒𝚗:</strong> 𝚠𝚠𝚠.𝚕𝚒𝚗𝚔𝚎𝚍𝚒𝚗.𝚌𝚘𝚖/𝚒𝚗/𝚝𝚑𝚊𝚖𝚖𝚝𝚛𝚊𝚗 🌐 </p>
 <p align="center"> ⋆ <strong>𝚎𝚖𝚊𝚒𝚕:</strong> 𝚝𝚑𝚊𝚖𝚖𝚊𝚒𝚝𝚛𝚊𝚗@𝚐𝚖𝚊𝚒𝚕.𝚌𝚘𝚖 📧</p> <br>
+<p align="center"> <img src="https://github.com/thammtran/thammtran/assets/145900344/69724181-6f88-44da-be7c-cc98f62c1089"/> </p> 
 <p align="center"> -------------♡ʚ🍭ɞ♡------------- </p> <br>
-<p align="center"> <img width="500" src="https://github.com/thammtran/thammtran/assets/145900344/d2b44463-c389-4672-a092-a796f38bc2ed"/> </p>
 <p align="center"> <img width="500" src="https://github.com/thammtran/thammtran/assets/145900344/875037d1-4d42-4f4e-a5b1-093db52592c4"/></p>
 <p align="center"> <img width="500" src="https://github.com/thammtran/thammtran/assets/145900344/05b09686-0fdd-4378-8e74-c82ce25b2ba8)"/></p>
 <p align="center"> <img width="500" src="https://github.com/thammtran/thammtran/assets/145900344/b3dacd34-d877-4f51-8327-b33337d720ab"/></p>
