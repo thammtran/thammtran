@@ -10,12 +10,12 @@
 <p align="center">⤷˚₊ <strong>𝚣𝚘𝚍𝚒𝚊𝚌 animal : </strong> rat 🐭 </p> 
 <p align="center">⤷ ♡⊹˚₊ <strong>𝚙𝚎𝚛𝚜𝚘𝚗𝚊𝚕𝚒𝚝𝚢 𝚝𝚢𝚙𝚎 : </strong> 𝚎𝚗𝚏𝚓-𝚝 💛</p> 
 <p align="center"> -------------♡ʚ🧁ɞ♡------------- </p> 
-<p align="center"> <img width="600" height="300" src="https://github.com/thammtran/thammtran/assets/145900344/e7d0fd0d-ce94-44cb-a03f-bdc469a53491"/> </p>
+<p align="center"> <img width="580" height="300" src="https://github.com/thammtran/thammtran/assets/145900344/e7d0fd0d-ce94-44cb-a03f-bdc469a53491"/> </p>
 <p align="center">⋆ 𝚠𝚎𝚋 𝚍𝚎𝚟𝚎𝚕𝚘𝚙𝚎𝚛 👩‍💻 </p>
 <p align="center">⋆ 𝚕𝚒𝚟𝚎𝚍 𝚎𝚡𝚙𝚎𝚛𝚒𝚎𝚗𝚌𝚎 𝚊𝚍𝚟𝚘𝚌𝚊𝚝𝚎 @ 𝚋𝚎𝚢𝚘𝚗𝚍 𝚋𝚕𝚞𝚎 & 𝚋𝚞𝚝𝚝𝚎𝚛𝚏𝚕𝚢 𝚏𝚘𝚞𝚗𝚍𝚊𝚝𝚒𝚘𝚗 🦋  </p>
 <p align="center">⋆ 𝚏𝚞𝚕𝚕-𝚝𝚒𝚖𝚎 𝚊𝚞𝚗𝚝 👩‍👧‍👧 </p> 
 <p align="center"> -------------♡ʚ🍩ɞ♡------------- </p> 
-<p align="center"> <img width="500" src="https://github.com/thammtran/thammtran/assets/145900344/9d473ea9-22b3-41f5-8581-52698ababec3"/> </p> 
+<p align="center"> <img width="580" src="https://github.com/thammtran/thammtran/assets/145900344/9d473ea9-22b3-41f5-8581-52698ababec3"/> </p> 
 <p align="center">⤷ ₊˚⊹♡ <strong>𝚑𝚘𝚋𝚋𝚒𝚎𝚜 : </strong> </p>  
 <p align="center"> ⋆ 𝚙𝚕𝚊𝚢𝚒𝚗𝚐 𝚟𝚒𝚍𝚎𝚘 𝚐𝚊𝚖𝚎𝚜 🎮 </p>
 <p align="center"> ⋆ 𝚠𝚊𝚝𝚌𝚑𝚒𝚗𝚐 𝚔𝚘𝚛𝚎𝚊𝚗 𝚍𝚛𝚊𝚖𝚊𝚜 🎭 </p>
