@@ -19,22 +19,22 @@
 <p align="center"> ⋆ 𝚜𝚙𝚕𝚞𝚛𝚐𝚒𝚗𝚐 𝚘𝚗 𝚙𝚕𝚞𝚜𝚑𝚒𝚎 𝚌𝚕𝚊𝚠 𝚖𝚊𝚌𝚑𝚒𝚗𝚎𝚜 🧸</p>
 <p align="center"> ⋆  𝚜𝚒𝚗𝚐𝚒𝚗𝚐 👩‍🎤 </p>
 <p align="center"><p align="center"> <img src="https://spotify-github-profile.vercel.app/api/view?uid=y4cybxhvrhxezqsn20byqpha7&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=a275f5&bar_color_cover=false"/> </p> <br>
-<p align="center"> -------------♡ʚ🍨ɞ♡------------- </p> <br>
-<p align="center"> <img src="https://github.com/thammtran/thammtran/assets/145900344/69724181-6f88-44da-be7c-cc98f62c1089"/> </p> 
+<p align="center"> -------------♡ʚ🍨ɞ♡------------- </p>
+<p align="center"> <img width="500" src="https://github.com/thammtran/thammtran/assets/145900344/69724181-6f88-44da-be7c-cc98f62c1089"/> </p> 
 <p align="center">⤷₊‧.°.⋆ <strong> 𝚌𝚘𝚗𝚝𝚊𝚌𝚝 </strong> •˚₊‧⋆.</p>  
 <p align="center"> ⋆ <strong>𝚕𝚒𝚗𝚔𝚎𝚍𝚒𝚗:</strong> 𝚠𝚠𝚠.𝚕𝚒𝚗𝚔𝚎𝚍𝚒𝚗.𝚌𝚘𝚖/𝚒𝚗/𝚝𝚑𝚊𝚖𝚖𝚝𝚛𝚊𝚗 🌐 </p>
 <p align="center"> ⋆ <strong>𝚎𝚖𝚊𝚒𝚕:</strong> 𝚝𝚑𝚊𝚖𝚖𝚊𝚒𝚝𝚛𝚊𝚗@𝚐𝚖𝚊𝚒𝚕.𝚌𝚘𝚖 📧</p> 
 <p align="center"> -------------♡ʚ🍭ɞ♡------------- </p> <br>
-<p align="center"> <img src="https://github.com/thammtran/thammtran/assets/145900344/d2b44463-c389-4672-a092-a796f38bc2ed"/> </p>
-<p align="center"> <img src="https://github.com/thammtran/thammtran/assets/145900344/875037d1-4d42-4f4e-a5b1-093db52592c4"/></p>
-<p align="center"> <img src="https://github.com/thammtran/thammtran/assets/145900344/05b09686-0fdd-4378-8e74-c82ce25b2ba8)"/></p>
-<p align="center"> <img src="https://github.com/thammtran/thammtran/assets/145900344/b3dacd34-d877-4f51-8327-b33337d720ab"/></p>
-<p align="center"> <img src="https://github.com/thammtran/thammtran/assets/145900344/2695fadf-ab41-4dad-82db-470dd5fc1247"/> </p>
-<p align="center"> <img src="https://github.com/thammtran/thammtran/assets/145900344/e7408691-48fe-4dad-8fee-0adf0667dfea"/> </p>
+<p align="center"> <img width="500" src="https://github.com/thammtran/thammtran/assets/145900344/d2b44463-c389-4672-a092-a796f38bc2ed"/> </p>
+<p align="center"> <img width="500" src="https://github.com/thammtran/thammtran/assets/145900344/875037d1-4d42-4f4e-a5b1-093db52592c4"/></p>
+<p align="center"> <img width="500" src="https://github.com/thammtran/thammtran/assets/145900344/05b09686-0fdd-4378-8e74-c82ce25b2ba8)"/></p>
+<p align="center"> <img width="500" src="https://github.com/thammtran/thammtran/assets/145900344/b3dacd34-d877-4f51-8327-b33337d720ab"/></p>
+<p align="center"> <img width="500" src="https://github.com/thammtran/thammtran/assets/145900344/2695fadf-ab41-4dad-82db-470dd5fc1247"/> </p>
+<p align="center"> <img width="500" src="https://github.com/thammtran/thammtran/assets/145900344/e7408691-48fe-4dad-8fee-0adf0667dfea"/> </p>
 <p align="center"> ⸜(｡˃ ᵕ ˂ )⸝♡ 𝚑𝚊𝚟𝚎 𝚊 𝚐𝚛𝚎𝚊𝚝 𝚍𝚊𝚢 <3!! 🌞🌈 ~~ </p>
  <p align="center"> <img width="200" height="200" src="https://github.com/thammtran/thammtran/assets/145900344/a11a2944-a7b1-45ee-b0cc-f5bde1e9788f"/> </p>
 <p align="center"> <img width="80" height="50" src="https://github.com/thammtran/thammtran/assets/145900344/6a4d6981-29f1-4302-bafb-1880bd15e523" title="Cute pink bow gif"/> </p> 
-╚════════════════════════════════ʚ*.·:·.☽✧ ✦ ✧☾.·:·.*ɞ══════════════════════════════════════╝ <br> <br>
+╚═════════════════════════════════ʚ*.·:·.☽✧ ✦ ✧☾.·:·.*ɞ═══════════════════════════════════════╝ <br> <br>
  
 ![3a6db835c78c33a3d4dad3dc7f8d8569](https://github.com/thammtran/thammtran/assets/145900344/c1b48a76-e8c3-43d8-80bf-5b82a032c30c)
 <p align="center"> 𝚙𝚜𝚜𝚝... 𝚍𝚘𝚎𝚜 𝚊𝚗𝚢𝚘𝚗𝚎 𝚎𝚕𝚜𝚎 𝚖𝚒𝚜𝚜 𝚖𝚢𝚜𝚙𝚊𝚌𝚎 𝚝𝚘𝚘? </p>
