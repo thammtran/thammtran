@@ -7,7 +7,7 @@
 <p align="center">⤷ ⊹ ˚ . <strong>𝚕𝚘𝚌𝚊𝚝𝚒𝚘𝚗 : </strong> 𝚖𝚎𝚕𝚋𝚘𝚞𝚛𝚗𝚎, 𝚟𝚒𝚌𝚝𝚘𝚛𝚒𝚊 🌏🦘 </p> 
 <p align="center">⤷ ₊‧.°.⋆ <strong>𝚋𝚒𝚛𝚝𝚑𝚍𝚊𝚢 : </strong> 𝚗𝚘𝚟𝚎𝚖𝚋𝚎𝚛 𝟷𝟽 🥳</p> 
 <p align="center">⤷.⋆ <strong>𝚣𝚘𝚍𝚒𝚊𝚌 𝚜𝚒𝚐𝚗 : </strong>𝚜𝚌𝚘𝚛𝚙𝚒𝚘 ♏🦂</p> 
-<p align="center">⤷˚₊ <strong>𝚣𝚘𝚍𝚒𝚊𝚌 animal : </strong> rat 🐭 </p> 
+<p align="center">⤷˚₊ <strong>𝚣𝚘𝚍𝚒𝚊𝚌 𝚊𝚗𝚒𝚖𝚊𝚕 : </strong> rat 🐭 </p> 
 <p align="center">⤷ ♡⊹˚₊ <strong>𝚙𝚎𝚛𝚜𝚘𝚗𝚊𝚕𝚒𝚝𝚢 𝚝𝚢𝚙𝚎 : </strong> 𝚎𝚗𝚏𝚓-𝚝 💛</p> 
 <p align="center"> -------------♡ʚ🧁ɞ♡------------- </p> 
 <p align="center"> <img width="580" height="300" src="https://github.com/thammtran/thammtran/assets/145900344/e7d0fd0d-ce94-44cb-a03f-bdc469a53491"/> </p>
