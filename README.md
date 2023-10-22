@@ -23,7 +23,7 @@
 <p align="center"> ⋆  𝚜𝚒𝚗𝚐𝚒𝚗𝚐 👩‍🎤 </p>
 <p align="center"><p align="center"> <img src="https://spotify-github-profile.vercel.app/api/view?uid=y4cybxhvrhxezqsn20byqpha7&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=a275f5&bar_color_cover=false"/> </p>
 <p align="center"> -------------♡ʚ🍨ɞ♡------------- </p>
-<p align="center"> <img width="500" src="https://github.com/thammtran/thammtran/assets/145900344/d2b44463-c389-4672-a092-a796f38bc2ed"/> </p>
+<p align="center"> <img width="580" src="https://github.com/thammtran/thammtran/assets/145900344/d2b44463-c389-4672-a092-a796f38bc2ed"/> </p>
 <p align="center">⤷₊‧.°.⋆ <strong> 𝚌𝚘𝚗𝚝𝚊𝚌𝚝 </strong> •˚₊‧⋆.</p>  
 <p align="center"> ⋆ <strong>𝚕𝚒𝚗𝚔𝚎𝚍𝚒𝚗:</strong> 𝚠𝚠𝚠.𝚕𝚒𝚗𝚔𝚎𝚍𝚒𝚗.𝚌𝚘𝚖/𝚒𝚗/𝚝𝚑𝚊𝚖𝚖𝚝𝚛𝚊𝚗 🌐 </p>
 <p align="center"> ⋆ <strong>𝚎𝚖𝚊𝚒𝚕:</strong> 𝚝𝚑𝚊𝚖𝚖𝚊𝚒𝚝𝚛𝚊𝚗@𝚐𝚖𝚊𝚒𝚕.𝚌𝚘𝚖 📧</p> 
