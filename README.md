@@ -7,12 +7,12 @@
 <p align="center">⤷ ₊‧.°.⋆ <strong>𝚋𝚒𝚛𝚝𝚑𝚍𝚊𝚢 : </strong> 𝚗𝚘𝚟𝚎𝚖𝚋𝚎𝚛 𝟷𝟽 (𝚜𝚌𝚘𝚛𝚙𝚒𝚘) 🥳 </p> <br>
 <p align="center">⤷ ♡⊹˚₊<strong>𝚙𝚎𝚛𝚜𝚘𝚗𝚊𝚕𝚒𝚝𝚢 𝚝𝚢𝚙𝚎 : </strong> 𝚎𝚗𝚏𝚓-𝚝 💛</p> <br>
 <p align="center"> -------------♡ʚ🧁ɞ♡------------- </p> <br>
-<p align="center"> <img width="620" height="300" src="https://github.com/thammtran/thammtran/assets/145900344/e7d0fd0d-ce94-44cb-a03f-bdc469a53491"/> </p>
+<p align="center"> <img width="500" height="300" src="https://github.com/thammtran/thammtran/assets/145900344/e7d0fd0d-ce94-44cb-a03f-bdc469a53491"/> </p>
 <p align="center">⋆ 𝚠𝚎𝚋 𝚍𝚎𝚟𝚎𝚕𝚘𝚙𝚎𝚛 👩‍💻 </p>
 <p align="center">⋆ 𝚕𝚒𝚟𝚎𝚍 𝚎𝚡𝚙𝚎𝚛𝚒𝚎𝚗𝚌𝚎 𝚊𝚍𝚟𝚘𝚌𝚊𝚝𝚎 @ 𝚋𝚎𝚢𝚘𝚗𝚍 𝚋𝚕𝚞𝚎 & 𝚋𝚞𝚝𝚝𝚎𝚛𝚏𝚕𝚢 𝚏𝚘𝚞𝚗𝚍𝚊𝚝𝚒𝚘𝚗 🦋  </p>
 <p align="center">⋆ 𝚏𝚞𝚕𝚕-𝚝𝚒𝚖𝚎 𝚊𝚞𝚗𝚝 👩‍👧‍👧 </p> <br>
 <p align="center"> -------------♡ʚ🍩ɞ♡------------- </p> <br>
-<p align="center"> <img width="620" src="https://github.com/thammtran/thammtran/assets/145900344/9d473ea9-22b3-41f5-8581-52698ababec3"/> </p>
+<p align="center"> <img width="500" src="https://github.com/thammtran/thammtran/assets/145900344/9d473ea9-22b3-41f5-8581-52698ababec3"/> </p>
 <p align="center">⤷ ₊˚⊹♡ <strong>𝚑𝚘𝚋𝚋𝚒𝚎𝚜 : </strong> </p>
 <p align="center"> ⋆ 𝚙𝚕𝚊𝚢𝚒𝚗𝚐 𝚟𝚒𝚍𝚎𝚘 𝚐𝚊𝚖𝚎𝚜 🎮 </p>
 <p align="center"> ⋆ 𝚠𝚊𝚝𝚌𝚑𝚒𝚗𝚐 𝚔𝚘𝚛𝚎𝚊𝚗 𝚍𝚛𝚊𝚖𝚊𝚜 🎭 </p>
@@ -25,12 +25,12 @@
 <p align="center"> ⋆ <strong>𝚕𝚒𝚗𝚔𝚎𝚍𝚒𝚗:</strong> 𝚠𝚠𝚠.𝚕𝚒𝚗𝚔𝚎𝚍𝚒𝚗.𝚌𝚘𝚖/𝚒𝚗/𝚝𝚑𝚊𝚖𝚖𝚝𝚛𝚊𝚗 🌐 </p>
 <p align="center"> ⋆ <strong>𝚎𝚖𝚊𝚒𝚕:</strong> 𝚝𝚑𝚊𝚖𝚖𝚊𝚒𝚝𝚛𝚊𝚗@𝚐𝚖𝚊𝚒𝚕.𝚌𝚘𝚖 📧</p> 
 <p align="center"> -------------♡ʚ🍭ɞ♡------------- </p> <br>
-<p align="center"> <img width="620" height="300" src="https://github.com/thammtran/thammtran/assets/145900344/d2b44463-c389-4672-a092-a796f38bc2ed"/> </p>
-<p align="center"> <img width="620" height="300" src="https://github.com/thammtran/thammtran/assets/145900344/875037d1-4d42-4f4e-a5b1-093db52592c4"/></p>
-<p align="center"> <img width="620" src="https://github.com/thammtran/thammtran/assets/145900344/05b09686-0fdd-4378-8e74-c82ce25b2ba8)"/></p>
-<p align="center"> <img width="620"  src="https://github.com/thammtran/thammtran/assets/145900344/b3dacd34-d877-4f51-8327-b33337d720ab"/></p>
-<p align="center"> <img width="620"  src="https://github.com/thammtran/thammtran/assets/145900344/2695fadf-ab41-4dad-82db-470dd5fc1247"/> </p>
-<p align="center"> <img width="620"  src="https://github.com/thammtran/thammtran/assets/145900344/e7408691-48fe-4dad-8fee-0adf0667dfea"/> </p>
+<p align="center"> <img width="500" height="300" src="https://github.com/thammtran/thammtran/assets/145900344/d2b44463-c389-4672-a092-a796f38bc2ed"/> </p>
+<p align="center"> <img width="500" height="300" src="https://github.com/thammtran/thammtran/assets/145900344/875037d1-4d42-4f4e-a5b1-093db52592c4"/></p>
+<p align="center"> <img width="500" src="https://github.com/thammtran/thammtran/assets/145900344/05b09686-0fdd-4378-8e74-c82ce25b2ba8)"/></p>
+<p align="center"> <img width="500"  src="https://github.com/thammtran/thammtran/assets/145900344/b3dacd34-d877-4f51-8327-b33337d720ab"/></p>
+<p align="center"> <img width="500"  src="https://github.com/thammtran/thammtran/assets/145900344/2695fadf-ab41-4dad-82db-470dd5fc1247"/> </p>
+<p align="center"> <img width="500"  src="https://github.com/thammtran/thammtran/assets/145900344/e7408691-48fe-4dad-8fee-0adf0667dfea"/> </p>
 <p align="center"> ⸜(｡˃ ᵕ ˂ )⸝♡ 𝚑𝚊𝚟𝚎 𝚊 𝚐𝚛𝚎𝚊𝚝 𝚍𝚊𝚢 <3!! 🌞🌈 ~~ </p>
  <p align="center"> <img width="200" height="200" src="https://github.com/thammtran/thammtran/assets/145900344/a11a2944-a7b1-45ee-b0cc-f5bde1e9788f"/> </p>
 <p align="center"> <img width="80" height="50" src="https://github.com/thammtran/thammtran/assets/145900344/6a4d6981-29f1-4302-bafb-1880bd15e523" title="Cute pink bow gif"/> </p> 
