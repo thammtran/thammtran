@@ -1,5 +1,5 @@
 
-╔═════════════════ʚ*.·:·.☽✧<img width="500" height="150" src="https://github.com/thammtran/thammtran/assets/145900344/dedaa68e-b4fd-4cc5-9801-e7b7a8c176a3"/> ✧☾.·:·.*ɞ════════════════╗ <br><br>
+╔══════════════ʚ*.·:·.☽✧<img width="500" height="150" src="https://github.com/thammtran/thammtran/assets/145900344/dedaa68e-b4fd-4cc5-9801-e7b7a8c176a3"/> ✧☾.·:·.*ɞ══════════════╗ <br><br>
 <p><img title="sailor moon but she&#39;s a lofi girl bc she deserves it" href="https://youtu.be/nTQUwghvy5Q" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen src="https://i.pinimg.com/originals/cd/8e/82/cd8e82fcb59e4e274ce6e296a5caac5e.gif"/>  </p> <br>
 <p align="center">    -------------♡ʚ🍰ɞ♡-------------  </p> <br>
 <p align="center">⤷ ⊹₊ ㆍ✿ ㆍ<strong>𝚗𝚊𝚖𝚎 : </strong> 𝚃𝚑𝚊𝚖 𝚃𝚛𝚊𝚗 (𝚜𝚑𝚎/𝚑𝚎𝚛) 🌸🌷</p> <br>
