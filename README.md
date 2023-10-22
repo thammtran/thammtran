@@ -1,5 +1,5 @@
 
-╔══════════════ʚ*.·:·.☽✧<img width="500" height="150" src="https://github.com/thammtran/thammtran/assets/145900344/dedaa68e-b4fd-4cc5-9801-e7b7a8c176a3"/> ✧☾.·:·.*ɞ══════════════╗ <br><br>
+╔═════════ʚ*.·:·.☽✧<img width="500" height="150" src="https://github.com/thammtran/thammtran/assets/145900344/dedaa68e-b4fd-4cc5-9801-e7b7a8c176a3"/> ✧☾.·:·.*ɞ═══════════╗ <br><br>
 <p><img title="sailor moon but she&#39;s a lofi girl bc she deserves it" href="https://youtu.be/nTQUwghvy5Q" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen src="https://i.pinimg.com/originals/cd/8e/82/cd8e82fcb59e4e274ce6e296a5caac5e.gif"/>  </p> <br>
 <p align="center">    -------------♡ʚ🍰ɞ♡-------------  </p> <br>
 <p align="center">⤷ ⊹₊ ㆍ✿ ㆍ<strong>𝚗𝚊𝚖𝚎 : </strong> 𝚃𝚑𝚊𝚖 𝚃𝚛𝚊𝚗 (𝚜𝚑𝚎/𝚑𝚎𝚛) 🌸🌷</p> <br>
@@ -24,7 +24,6 @@
 <p align="center">⤷₊‧.°.⋆ <strong> 𝚌𝚘𝚗𝚝𝚊𝚌𝚝 </strong> •˚₊‧⋆.</p>  
 <p align="center"> ⋆ <strong>𝚕𝚒𝚗𝚔𝚎𝚍𝚒𝚗:</strong> 𝚠𝚠𝚠.𝚕𝚒𝚗𝚔𝚎𝚍𝚒𝚗.𝚌𝚘𝚖/𝚒𝚗/𝚝𝚑𝚊𝚖𝚖𝚝𝚛𝚊𝚗 🌐 </p>
 <p align="center"> ⋆ <strong>𝚎𝚖𝚊𝚒𝚕:</strong> 𝚝𝚑𝚊𝚖𝚖𝚊𝚒𝚝𝚛𝚊𝚗@𝚐𝚖𝚊𝚒𝚕.𝚌𝚘𝚖 📧</p> 
-<p align="center"> <img width="620" src="https://github.com/thammtran/thammtran/assets/145900344/0c3e1c78-653d-4d93-8d6d-f9adf7267e1d"/> </p>
 <p align="center"> -------------♡ʚ🍭ɞ♡------------- </p> <br>
 <p align="center"> <img width="620" height="300" src="https://github.com/thammtran/thammtran/assets/145900344/d2b44463-c389-4672-a092-a796f38bc2ed"/> </p>
 <p align="center"> <img width="620" height="300" src="https://github.com/thammtran/thammtran/assets/145900344/875037d1-4d42-4f4e-a5b1-093db52592c4"/></p>
@@ -35,7 +34,7 @@
 <p align="center"> ⸜(｡˃ ᵕ ˂ )⸝♡ 𝚑𝚊𝚟𝚎 𝚊 𝚐𝚛𝚎𝚊𝚝 𝚍𝚊𝚢 <3!! 🌞🌈 ~~ </p>
  <p align="center"> <img width="200" height="200" src="https://github.com/thammtran/thammtran/assets/145900344/a11a2944-a7b1-45ee-b0cc-f5bde1e9788f"/> </p>
 <p align="center"> <img width="80" height="50" src="https://github.com/thammtran/thammtran/assets/145900344/6a4d6981-29f1-4302-bafb-1880bd15e523" title="Cute pink bow gif"/> </p> 
-╚══════════════════════════════════════ʚ*.·:·.☽✧ ✦ ✧☾.·:·.*ɞ═════════════════════════════════════╝ <br> <br>
+╚══════════════════════════ʚ*.·:·.☽✧ ✦ ✧☾.·:·.*ɞ═══════════════════════════╝ <br> <br>
  
 ![3a6db835c78c33a3d4dad3dc7f8d8569](https://github.com/thammtran/thammtran/assets/145900344/c1b48a76-e8c3-43d8-80bf-5b82a032c30c)
 <p align="center"> 𝚙𝚜𝚜𝚝... 𝚍𝚘𝚎𝚜 𝚊𝚗𝚢𝚘𝚗𝚎 𝚎𝚕𝚜𝚎 𝚖𝚒𝚜𝚜 𝚖𝚢𝚜𝚙𝚊𝚌𝚎 𝚝𝚘𝚘? </p>
