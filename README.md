@@ -17,9 +17,9 @@
 <p align="center"> ⋆ 𝚙𝚕𝚊𝚢𝚒𝚗𝚐 𝚟𝚒𝚍𝚎𝚘 𝚐𝚊𝚖𝚎𝚜 🎮 </p>
 <p align="center"> ⋆ 𝚠𝚊𝚝𝚌𝚑𝚒𝚗𝚐 𝚔𝚘𝚛𝚎𝚊𝚗 𝚍𝚛𝚊𝚖𝚊𝚜 🎭 </p>
 <p align="center"> ⋆ 𝚜𝚙𝚕𝚞𝚛𝚐𝚒𝚗𝚐 𝚘𝚗 𝚙𝚕𝚞𝚜𝚑𝚒𝚎 𝚌𝚕𝚊𝚠 𝚖𝚊𝚌𝚑𝚒𝚗𝚎𝚜 🧸</p>
-<p align="center"> ⋆  𝚜𝚒𝚗𝚐𝚒𝚗𝚐 👩‍🎤 </p> <br>
-<p align="center"><p align="center"> <img src="https://spotify-github-profile.vercel.app/api/view?uid=y4cybxhvrhxezqsn20byqpha7&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=a275f5&bar_color_cover=false"/> </p> <br>
-<p align="center"> -------------♡ʚ🍨ɞ♡------------- </p> <br>
+<p align="center"> ⋆  𝚜𝚒𝚗𝚐𝚒𝚗𝚐 👩‍🎤 </p>
+<p align="center"><p align="center"> <img src="https://spotify-github-profile.vercel.app/api/view?uid=y4cybxhvrhxezqsn20byqpha7&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=a275f5&bar_color_cover=false"/> </p>
+<p align="center"> -------------♡ʚ🍨ɞ♡------------- </p>
 <p align="center"> <img src="https://github.com/thammtran/thammtran/assets/145900344/69724181-6f88-44da-be7c-cc98f62c1089"/> </p> 
 <p align="center">⤷₊‧.°.⋆ <strong> 𝚌𝚘𝚗𝚝𝚊𝚌𝚝 </strong> •˚₊‧⋆.</p>  
 <p align="center"> ⋆ <strong>𝚕𝚒𝚗𝚔𝚎𝚍𝚒𝚗:</strong> 𝚠𝚠𝚠.𝚕𝚒𝚗𝚔𝚎𝚍𝚒𝚗.𝚌𝚘𝚖/𝚒𝚗/𝚝𝚑𝚊𝚖𝚖𝚝𝚛𝚊𝚗 🌐 </p>
