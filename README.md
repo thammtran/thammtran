@@ -14,14 +14,13 @@
  [𝙲𝚘𝚗𝚝𝚊𝚌𝚝](https://github.com/thammtran/#%F0%9D%9A%8C%F0%9D%9A%98%F0%9D%9A%97%F0%9D%9A%9D%F0%9D%9A%8A%F0%9D%9A%8C%F0%9D%9A%9D) </h4>
   
  <p align="center"> <img src="https://readme-typing-svg.demolab.com?font=Monospace&pause=1000&color=F79DA7FF&random=false&width=435&lines=Hi%F0%9F%91%8B+My+name+is+Tham.+Nice+to+meet+you!". alt="Hi+My+Name+is+Tham.+Nice+to+meet+you!"/>
-<img width="580" height="300" src="https://github.com/thammtran/thammtran/assets/145900344/45d1da42-c243-4098-8b44-b709dca4d253" alt="This is a moving image of typing on a keyboard"/> 
 <p align="center">  
 ╔══════════ʚ*.·:·.☽✧<img width="500" height="150" src="https://github.com/thammtran/thammtran/assets/145900344/dedaa68e-b4fd-4cc5-9801-e7b7a8c176a3" alt="This is a moving image that spells out Welcome"/> ✧☾.·:·.*ɞ════════════╗ <br><br>
 <img src="https://github.com/thammtran/thammtran/assets/145900344/c1b48a76-e8c3-43d8-80bf-5b82a032c30c" alt="This is a moving image showing a tea party with halloween decorations in the background"> 
  
 <h3 align="center">𝚋𝚒𝚘</h3>
 <p align="center">    -------------♡ʚ🍰ɞ♡-------------  </p>
-<p align="center"> <img width="500" src="https://github.com/thammtran/thammtran/assets/145900344/e7d0fd0d-ce94-44cb-a03f-bdc469a53491" alt="This is a moving image showing working on a laptop, the screen displays an illustration of a flower"/></p>
+<p align="center"> <img width="580" src="https://github.com/thammtran/thammtran/assets/145900344/e7d0fd0d-ce94-44cb-a03f-bdc469a53491" alt="This is a moving image showing working on a laptop, the screen displays an illustration of a flower"/></p>
      <p align="center">⤷ ⊹₊ㆍ✿ㆍ<strong>𝚗𝚊𝚖𝚎 : </strong> 𝚃𝚑𝚊𝚖 𝚃𝚛𝚊𝚗 (𝚜𝚑𝚎/𝚑𝚎𝚛) 🌸🌷
      <p align="center">⤷ ⊹ ˚ . <strong>𝚕𝚘𝚌𝚊𝚝𝚒𝚘𝚗 : </strong> 𝚖𝚎𝚕𝚋𝚘𝚞𝚛𝚗𝚎, 𝚟𝚒𝚌𝚝𝚘𝚛𝚒𝚊 🌏🦘 
      <p align="center">⤷ ₊‧.°.⋆ <strong>𝚋𝚒𝚛𝚝𝚑𝚍𝚊𝚢 : </strong> 𝚗𝚘𝚟𝚎𝚖𝚋𝚎𝚛 𝟷𝟽 🥳
@@ -31,11 +30,8 @@
      <p align="center"> ⤷ ✿˚<strong>𝚌𝚊𝚛𝚎𝚎𝚛 : </strong> 𝚠𝚎𝚋 𝚍𝚎𝚟𝚎𝚕𝚘𝚙𝚎𝚛 👩‍💻👷‍♀️  
      <p align="center"> <img src="https://github.com/thammtran/thammtran/assets/145900344/3caaca1b-7025-43ae-b697-95c35a5f06f7" alt="This is the HTML icon"/> 
        <img width="64" height="64" src="https://github.com/thammtran/thammtran/assets/145900344/855b216d-c079-49af-978a-af75055159a3" alt="This is the CSS icon"/> 
-       <img width="64" height="64" src="https://github.com/thammtran/thammtran/assets/145900344/e9befc01-1cac-445b-a0ed-e5395fcd24d2"alt="This is the Javascript icon"/> </p>
-                                 
-  <p align="center"> 𝚠𝚑𝚎𝚗 𝚖𝚢 𝚌𝚘𝚍𝚎 𝚠𝚘𝚛𝚔𝚜 <img width="420" src="https://github.com/thammtran/thammtran/assets/145900344/780ca261-d286-4cc9-9ab6-676fb0d7b89d" alt="This is a moving image expressing satisfaction for writing a working code"/> </p>
-  <p align="center"> 𝚠𝚑𝚎𝚗 𝚒𝚝 𝚍𝚘𝚎𝚜𝚗'𝚝 <img width="420"height="236" src="https://github.com/thammtran/thammtran/assets/145900344/be8df796-b9df-4267-ad93-e31029ec448a)" alt="This is a moving image expressing frustration when your code doesn't work as intended"/> </p>
-
+       <img width="64" height="64" src="https://github.com/thammtran/thammtran/assets/145900344/e9befc01-1cac-445b-a0ed-e5395fcd24d2"alt="This is the Javascript icon"/> </p>           
+  <p align="center"><img width="580" height="300" src="https://github.com/thammtran/thammtran/assets/145900344/45d1da42-c243-4098-8b44-b709dca4d253" alt="This is a moving image of typing on a keyboard"/> </p> 
   <p align="center"> -------------♡ʚ🧁ɞ♡------------- 
  
 <h3 align="center">𝚑𝚘𝚋𝚋𝚒𝚎𝚜</h3>
