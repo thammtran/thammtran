@@ -6,7 +6,7 @@
  
   <h1 align="center">🎀𝚝𝚑𝚊𝚖𝚖𝚝𝚛𝚊𝚗'𝚜 𝚙𝚛𝚘𝚏𝚒𝚕𝚎🎀</h1>
     
- <h4 align="center"><strong>𝚀𝚞𝚒𝚌𝚔 𝙻𝚒𝚗𝚔𝚜:</strong> <br>
+ <h4 align="center"><strong>𝚀𝚞𝚒𝚌𝚔 𝙻𝚒𝚗𝚔𝚜:</strong>
   
  [𝙱𝚒𝚘](https://github.com/thammtran/thammtran/tree/main#%F0%9D%9A%8B%F0%9D%9A%92%F0%9D%9A%98) 
  [𝙷𝚘𝚋𝚋𝚒𝚎𝚜](https://github.com/thammtran/thammtran/tree/main#%F0%9D%9A%91%F0%9D%9A%98%F0%9D%9A%8B%F0%9D%9A%8B%F0%9D%9A%92%F0%9D%9A%8E%F0%9D%9A%9C) 
@@ -74,12 +74,15 @@
 </div>
  
 <footer align="center">
-<h4 align="center">𝚌𝚘𝚗𝚝𝚊𝚌𝚝
- <p align="center">  <img src="https://github.com/thammtran/thammtran/assets/145900344/69724181-6f88-44da-be7c-cc98f62c1089" alt="Cinnamaroll puppy using the telephone"/> </p>
+<h4 align="center">𝚌𝚘𝚗𝚝𝚊𝚌𝚝 </h4>
+<h4 align="center">
  
  [𝚕𝚒𝚗𝚔𝚎𝚍𝚒𝚗🌐](https://www.linkedin.com/in/thammtran)
  [𝚎𝚖𝚊𝚒𝚕📧](mailto:𝚝𝚑𝚊𝚖𝚖𝚊𝚒𝚝𝚛𝚊𝚗@𝚐𝚖𝚊𝚒𝚕.𝚌𝚘𝚖)
  [𝚍𝚒𝚜𝚌𝚘𝚛𝚍💬](https://www.discordapp.com/users/240669511592837120) </h4>
+  <p align="center">  <img src="https://github.com/thammtran/thammtran/assets/145900344/69724181-6f88-44da-be7c-cc98f62c1089" alt="Cinnamaroll puppy using the telephone"/>  </p>
+  </h4>
+ 
  <p align="center"> -------------♡ʚ🍩ɞ♡------------- </p>   
   <h4 align="center">   
   
