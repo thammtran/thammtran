@@ -7,15 +7,14 @@
 <img width="420" src="https://github.com/thammtran/thammtran/assets/145900344/e7d0fd0d-ce94-44cb-a03f-bdc469a53491"/> <img width="420" src="https://github.com/thammtran/thammtran/assets/145900344/45d1da42-c243-4098-8b44-b709dca4d253"/> </p> 
 <p align="center">⤷ ⊹₊ㆍ✿ㆍ<strong>𝚗𝚊𝚖𝚎 : </strong> 𝚃𝚑𝚊𝚖 𝚃𝚛𝚊𝚗 (𝚜𝚑𝚎/𝚑𝚎𝚛) 🌸🌷</p>
 <p align="center">⤷ ₊‧.°.⋆ <strong>𝚋𝚒𝚛𝚝𝚑𝚍𝚊𝚢 : </strong> 𝚗𝚘𝚟𝚎𝚖𝚋𝚎𝚛 𝟷𝟽 🥳</p> 
-<p align="center">⤷ ♡⊹˚₊ <strong>𝚙𝚎𝚛𝚜𝚘𝚗𝚊𝚕𝚒𝚝𝚢 𝚝𝚢𝚙𝚎 : </strong> 𝚎𝚗𝚏𝚓-𝚝 💛</p> 
 <p align="center">⤷ ⊹ ˚ . <strong>𝚕𝚘𝚌𝚊𝚝𝚒𝚘𝚗 : </strong> 𝚖𝚎𝚕𝚋𝚘𝚞𝚛𝚗𝚎, 𝚟𝚒𝚌𝚝𝚘𝚛𝚒𝚊 🌏🦘 </p> 
+<p align="center">⤷ ♡⊹˚₊ <strong>𝚙𝚎𝚛𝚜𝚘𝚗𝚊𝚕𝚒𝚝𝚢 𝚝𝚢𝚙𝚎 : </strong> 𝚎𝚗𝚏𝚓-𝚝 💛</p> 
 <p align="center">⤷ ♡⊹ <strong>𝚏𝚕𝚞𝚎𝚗𝚝 𝚒𝚗: </strong> 𝚟𝚒𝚎𝚝𝚗𝚊𝚖𝚎𝚜𝚎 & 𝚎𝚗𝚐𝚕𝚒𝚜𝚑 🗣 </p>
-
 <p align="center"> ⤷ ✿˚<strong>𝚌𝚊𝚛𝚎𝚎𝚛 : </strong> 𝚠𝚎𝚋 𝚍𝚎𝚟𝚎𝚕𝚘𝚙𝚎𝚛 👩‍💻👷‍♀️  </p>
 <p align="center"> <img src="https://github.com/thammtran/thammtran/assets/145900344/3caaca1b-7025-43ae-b697-95c35a5f06f7"/> 
 <img width="64" height="64" src="https://github.com/thammtran/thammtran/assets/145900344/855b216d-c079-49af-978a-af75055159a3"/> 
 <img width="64" height="64" src="https://github.com/thammtran/thammtran/assets/145900344/e9befc01-1cac-445b-a0ed-e5395fcd24d2"/> </p>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 𝚠𝚑𝚎𝚗 𝚖𝚢 𝚌𝚘𝚍𝚎 𝚠𝚘𝚛𝚔𝚜 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 𝚟𝚜. 𝚠𝚑𝚎𝚗 𝚒𝚝 𝚍𝚘𝚎𝚜𝚗'𝚝                                  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 𝚠𝚑𝚎𝚗 𝚖𝚢 𝚌𝚘𝚍𝚎 𝚠𝚘𝚛𝚔𝚜 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 𝚟𝚜. 𝚠𝚑𝚎𝚗 𝚒𝚝 𝚍𝚘𝚎𝚜𝚗'𝚝                                  
 <p> <img width="420" src="https://github.com/thammtran/thammtran/assets/145900344/780ca261-d286-4cc9-9ab6-676fb0d7b89d"/>
 <img width="420"height="236" src="https://github.com/thammtran/thammtran/assets/145900344/be8df796-b9df-4267-ad93-e31029ec448a)"/> </p>
 <p align="center">  </p> 
