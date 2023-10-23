@@ -35,6 +35,7 @@
 <p align="center"> <img src="https://github.com/thammtran/thammtran/assets/145900344/69724181-6f88-44da-be7c-cc98f62c1089"/>
 <p align="center"> ⋆ <strong>𝚕𝚒𝚗𝚔𝚎𝚍𝚒𝚗 : </strong>𝚠𝚠𝚠.𝚕𝚒𝚗𝚔𝚎𝚍𝚒𝚗.𝚌𝚘𝚖/𝚒𝚗/𝚝𝚑𝚊𝚖𝚖𝚝𝚛𝚊𝚗 🌐 </p>
 <p align="center"> ⋆ <strong>𝚎𝚖𝚊𝚒𝚕 : </strong> 𝚝𝚑𝚊𝚖𝚖𝚊𝚒𝚝𝚛𝚊𝚗@𝚐𝚖𝚊𝚒𝚕.𝚌𝚘𝚖 📧</p> 
+<p align="center"> ⋆ <strong>𝚍𝚒𝚜𝚌𝚘𝚛𝚍 : </strong> 𝚝𝚑𝚊𝚖𝚖𝚝𝚛𝚊𝚗 💬 </p>
  <p align="center"><img width="580" src="https://github.com/thammtran/thammtran/assets/145900344/e7d0fd0d-ce94-44cb-a03f-bdc469a53491"/></p>
  
 <p align="center"> -------------♡ʚ🍭ɞ♡------------- </p> 
