@@ -9,6 +9,7 @@
 <p align="center">⤷ ⊹₊ㆍ✿ㆍ<strong>𝚗𝚊𝚖𝚎 : </strong> 𝚃𝚑𝚊𝚖 𝚃𝚛𝚊𝚗 (𝚜𝚑𝚎/𝚑𝚎𝚛) 🌸🌷</p>
 <p align="center">⤷ ⊹ ˚ . <strong>𝚕𝚘𝚌𝚊𝚝𝚒𝚘𝚗 : </strong> 𝚖𝚎𝚕𝚋𝚘𝚞𝚛𝚗𝚎, 𝚟𝚒𝚌𝚝𝚘𝚛𝚒𝚊 🌏🦘 </p> 
 <p align="center">⤷ ₊‧.°.⋆ <strong>𝚋𝚒𝚛𝚝𝚑𝚍𝚊𝚢 : </strong> 𝚗𝚘𝚟𝚎𝚖𝚋𝚎𝚛 𝟷𝟽 🥳</p> 
+<p align="center"> ⤷ ⊹₊ㆍ<strong> 𝚜𝚞𝚗, 𝚖𝚘𝚘𝚗 & 𝚛𝚒𝚜𝚒𝚗𝚐 : </strong> 𝚜𝚌𝚘𝚛𝚙𝚒𝚘, 𝚊𝚚𝚞𝚊𝚛𝚒𝚞𝚜 & 𝚌𝚊𝚙𝚛𝚒𝚌𝚘𝚛𝚗  🔮 </p>
 <p align="center">⤷ ♡⊹˚₊ <strong>𝚙𝚎𝚛𝚜𝚘𝚗𝚊𝚕𝚒𝚝𝚢 𝚝𝚢𝚙𝚎 : </strong> 𝚎𝚗𝚏𝚓-𝚝 💛</p> 
 <p align="center">⤷ ♡⊹ <strong>𝚏𝚕𝚞𝚎𝚗𝚝 𝚒𝚗: </strong> 𝚟𝚒𝚎𝚝𝚗𝚊𝚖𝚎𝚜𝚎 & 𝚎𝚗𝚐𝚕𝚒𝚜𝚑 🗣 </p>
 <p align="center"> ⤷ ✿˚<strong>𝚌𝚊𝚛𝚎𝚎𝚛 : </strong> 𝚠𝚎𝚋 𝚍𝚎𝚟𝚎𝚕𝚘𝚙𝚎𝚛 👩‍💻👷‍♀️  </p>
