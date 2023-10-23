@@ -6,14 +6,12 @@
  
   <h1 align="center">🎀𝚝𝚑𝚊𝚖𝚖𝚝𝚛𝚊𝚗'𝚜 𝚙𝚛𝚘𝚏𝚒𝚕𝚎🎀</h1>
     
- <h4 align="center"><strong>𝚀𝚞𝚒𝚌𝚔 𝙻𝚒𝚗𝚔𝚜:</strong>
+<div> <h4 align="center"><strong>𝚀𝚞𝚒𝚌𝚔 𝙻𝚒𝚗𝚔𝚜:</strong> <br>
   
- [𝙱𝚒𝚘](https://github.com/thammtran/thammtran/tree/main#%F0%9D%9A%8B%F0%9D%9A%92%F0%9D%9A%98) 
- [𝙷𝚘𝚋𝚋𝚒𝚎𝚜](https://github.com/thammtran/thammtran/tree/main#%F0%9D%9A%91%F0%9D%9A%98%F0%9D%9A%8B%F0%9D%9A%8B%F0%9D%9A%92%F0%9D%9A%8E%F0%9D%9A%9C) 
- [𝚁𝚎𝚖𝚒𝚗𝚍𝚎𝚛𝚜](https://github.com/thammtran/thammtran/tree/main#%F0%9D%9A%9B%F0%9D%9A%8E%F0%9D%9A%96%F0%9D%9A%92%F0%9D%9A%97%F0%9D%9A%8D%F0%9D%9A%8E%F0%9D%9A%9B%F0%9D%9A%9C) 
- [𝙲𝚘𝚗𝚝𝚊𝚌𝚝](https://github.com/thammtran/thammtran/tree/main#%F0%9D%9A%8C%F0%9D%9A%98%F0%9D%9A%97%F0%9D%9A%9D%F0%9D%9A%8A%F0%9D%9A%8C%F0%9D%9A%9D) 
- 
-</h4>
+ [𝙱𝚒𝚘](https://github.com/thammtran/#%F0%9D%9A%8B%F0%9D%9A%92%F0%9D%9A%98) 
+ [𝙷𝚘𝚋𝚋𝚒𝚎𝚜](https://github.com/thammtran/#%F0%9D%9A%91%F0%9D%9A%98%F0%9D%9A%8B%F0%9D%9A%8B%F0%9D%9A%92%F0%9D%9A%8E%F0%9D%9A%9C) 
+ [𝚁𝚎𝚖𝚒𝚗𝚍𝚎𝚛𝚜](https://github.com/thammtran/#%F0%9D%9A%9B%F0%9D%9A%8E%F0%9D%9A%96%F0%9D%9A%92%F0%9D%9A%97%F0%9D%9A%8D%F0%9D%9A%8E%F0%9D%9A%9B%F0%9D%9A%9C) 
+ [𝙲𝚘𝚗𝚝𝚊𝚌𝚝](https://github.com/thammtran/#%F0%9D%9A%8C%F0%9D%9A%98%F0%9D%9A%97%F0%9D%9A%9D%F0%9D%9A%8A%F0%9D%9A%8C%F0%9D%9A%9D) </h4>
   
  <p align="center"> <img src="https://readme-typing-svg.demolab.com?font=Monospace&pause=1000&color=F79DA7FF&random=false&width=435&lines=Hi%F0%9F%91%8B+My+name+is+Tham.+Nice+to+meet+you!". alt="Hi+My+Name+is+Tham.+Nice+to+meet+you!"/>
 <img width="580" height="300" src="https://github.com/thammtran/thammtran/assets/145900344/45d1da42-c243-4098-8b44-b709dca4d253" alt="This is a moving image of typing on a keyboard"/> 
@@ -65,16 +63,16 @@
      
 <div> <h4 align="center"><strong>𝚀𝚞𝚒𝚌𝚔 𝙻𝚒𝚗𝚔𝚜:</strong> <br>
   
- [𝙱𝚒𝚘](https://github.com/thammtran/thammtran/tree/main#%F0%9D%9A%8B%F0%9D%9A%92%F0%9D%9A%98) 
- [𝙷𝚘𝚋𝚋𝚒𝚎𝚜](https://github.com/thammtran/thammtran/tree/main#%F0%9D%9A%91%F0%9D%9A%98%F0%9D%9A%8B%F0%9D%9A%8B%F0%9D%9A%92%F0%9D%9A%8E%F0%9D%9A%9C) 
- [𝚁𝚎𝚖𝚒𝚗𝚍𝚎𝚛𝚜](https://github.com/thammtran/thammtran/tree/main#%F0%9D%9A%9B%F0%9D%9A%8E%F0%9D%9A%96%F0%9D%9A%92%F0%9D%9A%97%F0%9D%9A%8D%F0%9D%9A%8E%F0%9D%9A%9B%F0%9D%9A%9C) 
- [𝙲𝚘𝚗𝚝𝚊𝚌𝚝](https://github.com/thammtran/thammtran/tree/main#%F0%9D%9A%8C%F0%9D%9A%98%F0%9D%9A%97%F0%9D%9A%9D%F0%9D%9A%8A%F0%9D%9A%8C%F0%9D%9A%9D) </h4>
+ [𝙱𝚒𝚘](https://github.com/thammtran/#%F0%9D%9A%8B%F0%9D%9A%92%F0%9D%9A%98) 
+ [𝙷𝚘𝚋𝚋𝚒𝚎𝚜](https://github.com/thammtran/#%F0%9D%9A%91%F0%9D%9A%98%F0%9D%9A%8B%F0%9D%9A%8B%F0%9D%9A%92%F0%9D%9A%8E%F0%9D%9A%9C) 
+ [𝚁𝚎𝚖𝚒𝚗𝚍𝚎𝚛𝚜](https://github.com/thammtran/#%F0%9D%9A%9B%F0%9D%9A%8E%F0%9D%9A%96%F0%9D%9A%92%F0%9D%9A%97%F0%9D%9A%8D%F0%9D%9A%8E%F0%9D%9A%9B%F0%9D%9A%9C) 
+ [𝙲𝚘𝚗𝚝𝚊𝚌𝚝](https://github.com/thammtran/#%F0%9D%9A%8C%F0%9D%9A%98%F0%9D%9A%97%F0%9D%9A%9D%F0%9D%9A%8A%F0%9D%9A%8C%F0%9D%9A%9D) </h4>
 
  <p align="center"> -------------♡ʚ🍨ɞ♡------------- </p>  
 </div>
  
 <footer align="center">
-<h4 align="center">𝚌𝚘𝚗𝚝𝚊𝚌𝚝 </h4>
+<h4 align="center">𝚌𝚘𝚗𝚝𝚊𝚌𝚝</h4>
 <h4 align="center">
  
  [𝚕𝚒𝚗𝚔𝚎𝚍𝚒𝚗🌐](https://www.linkedin.com/in/thammtran)
@@ -86,7 +84,7 @@
  <p align="center"> -------------♡ʚ🍩ɞ♡------------- </p>   
   <h4 align="center">   
   
-[𝙶𝚘 𝚋𝚊𝚌𝚔 𝚝𝚘 𝚝𝚘𝚙](https://github.com/thammtran/thammtran/tree/main#%F0%9D%9A%9D%F0%9D%9A%91%F0%9D%9A%8A%F0%9D%9A%96%F0%9D%9A%96%F0%9D%9A%9D%F0%9D%9A%9B%F0%9D%9A%8A%F0%9D%9A%97%F0%9D%9A%9C-%F0%9D%9A%99%F0%9D%9A%9B%F0%9D%9A%98%F0%9D%9A%8F%F0%9D%9A%92%F0%9D%9A%95%F0%9D%9A%8E) 
+[𝙶𝚘 𝚋𝚊𝚌𝚔 𝚝𝚘 𝚝𝚘𝚙](https://github.com/thammtran/#%F0%9D%9A%9D%F0%9D%9A%91%F0%9D%9A%8A%F0%9D%9A%96%F0%9D%9A%96%F0%9D%9A%9D%F0%9D%9A%9B%F0%9D%9A%8A%F0%9D%9A%97%F0%9D%9A%9C-%F0%9D%9A%99%F0%9D%9A%9B%F0%9D%9A%98%F0%9D%9A%8F%F0%9D%9A%92%F0%9D%9A%95%F0%9D%9A%8E) 
 </h4>
 <p align="right"><em><strong> &copy; thammtran</strong></em> </p> 
    <p align="right"> <em>𝚙𝚜𝚜𝚝... 𝚍𝚘𝚎𝚜 𝚊𝚗𝚢𝚘𝚗𝚎 𝚎𝚕𝚜𝚎 𝚖𝚒𝚜𝚜 𝚖𝚢𝚜𝚙𝚊𝚌𝚎 𝚝𝚘𝚘?</em> </p>     
