@@ -1,10 +1,10 @@
 <p align="center"> <img width="80" height="50" src="https://github.com/thammtran/thammtran/assets/145900344/6a4d6981-29f1-4302-bafb-1880bd15e523" title="Cute pink bow gif"/> </p> 
-
 <p align="center"> <img src="https://readme-typing-svg.demolab.com?font=Monospace&pause=1000&color=F79DA7FF&random=false&width=435&lines=Hi%F0%9F%91%8B+My+name+is+Tham.+Nice+to+meet+you!;"/></p>
 ╔══════════ʚ*.·:·.☽✧<img width="500" height="150" src="https://github.com/thammtran/thammtran/assets/145900344/dedaa68e-b4fd-4cc5-9801-e7b7a8c176a3"/> ✧☾.·:·.*ɞ════════════╗ <br><br>
-<p><img title="sailor moon but she&#39;s a lofi girl bc she deserves it" href="https://youtu.be/nTQUwghvy5Q" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen src="https://i.pinimg.com/originals/cd/8e/82/cd8e82fcb59e4e274ce6e296a5caac5e.gif"/></p>
+<p align="center"> <img src="https://github.com/thammtran/thammtran/assets/145900344/c1b48a76-e8c3-43d8-80bf-5b82a032c30c"/> </p>
 <p align="center">    -------------♡ʚ🍰ɞ♡-------------  </p>
 <img width="420" src="https://github.com/thammtran/thammtran/assets/145900344/e7d0fd0d-ce94-44cb-a03f-bdc469a53491"/> <img width="420" src="https://github.com/thammtran/thammtran/assets/145900344/45d1da42-c243-4098-8b44-b709dca4d253"/> </p> 
+
 <p align="center">⤷ ⊹₊ㆍ✿ㆍ<strong>𝚗𝚊𝚖𝚎 : </strong> 𝚃𝚑𝚊𝚖 𝚃𝚛𝚊𝚗 (𝚜𝚑𝚎/𝚑𝚎𝚛) 🌸🌷</p>
 <p align="center">⤷ ₊‧.°.⋆ <strong>𝚋𝚒𝚛𝚝𝚑𝚍𝚊𝚢 : </strong> 𝚗𝚘𝚟𝚎𝚖𝚋𝚎𝚛 𝟷𝟽 🥳</p> 
 <p align="center">⤷ ⊹ ˚ . <strong>𝚕𝚘𝚌𝚊𝚝𝚒𝚘𝚗 : </strong> 𝚖𝚎𝚕𝚋𝚘𝚞𝚛𝚗𝚎, 𝚟𝚒𝚌𝚝𝚘𝚛𝚒𝚊 🌏🦘 </p> 
@@ -41,9 +41,7 @@
 <p align="center"> <img width="500" src="https://github.com/thammtran/thammtran/assets/145900344/b3dacd34-d877-4f51-8327-b33337d720ab"/></p>
 <p align="center"> <img width="500" src="https://github.com/thammtran/thammtran/assets/145900344/2695fadf-ab41-4dad-82db-470dd5fc1247"/> </p>
 <p align="center"> ⸜(｡˃ ᵕ ˂ )⸝♡ 𝚑𝚊𝚟𝚎 𝚊 𝚐𝚛𝚎𝚊𝚝 𝚍𝚊𝚢 <3!! 🌞🌈 ~~ </p>
- <p align="center"> <img width="200" height="200" src="https://github.com/thammtran/thammtran/assets/145900344/a11a2944-a7b1-45ee-b0cc-f5bde1e9788f"/> </p>
- 
-╚═════════════════════════════════ʚ*.·:·.☽✧ ✦ ✧☾.·:·.*ɞ═════════════════════════════════════╝ <br> <br>
- 
-![3a6db835c78c33a3d4dad3dc7f8d8569](https://github.com/thammtran/thammtran/assets/145900344/c1b48a76-e8c3-43d8-80bf-5b82a032c30c)
-<p align="center"> 𝚙𝚜𝚜𝚝... 𝚍𝚘𝚎𝚜 𝚊𝚗𝚢𝚘𝚗𝚎 𝚎𝚕𝚜𝚎 𝚖𝚒𝚜𝚜 𝚖𝚢𝚜𝚙𝚊𝚌𝚎 𝚝𝚘𝚘? </p>
+  <p align="center"> <img width="200" height="200" src="https://github.com/thammtran/thammtran/assets/145900344/a11a2944-a7b1-45ee-b0cc-f5bde1e9788f"/> </p>
+ ╚═════════════════════════════════ʚ*.·:·.☽✧ ✦ ✧☾.·:·.*ɞ═════════════════════════════════════╝ <br> <br>
+ <p><img title="sailor moon but she&#39;s a lofi girl bc she deserves it" href="https://youtu.be/nTQUwghvy5Q" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen src="https://i.pinimg.com/originals/cd/8e/82/cd8e82fcb59e4e274ce6e296a5caac5e.gif"/></p>
+<p align="center"> <em>𝚙𝚜𝚜𝚝... 𝚍𝚘𝚎𝚜 𝚊𝚗𝚢𝚘𝚗𝚎 𝚎𝚕𝚜𝚎 𝚖𝚒𝚜𝚜 𝚖𝚢𝚜𝚙𝚊𝚌𝚎 𝚝𝚘𝚘?</em> </p>
