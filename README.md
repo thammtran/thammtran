@@ -12,7 +12,7 @@
 <p align="center"> <img src="https://github.com/thammtran/thammtran/assets/145900344/3caaca1b-7025-43ae-b697-95c35a5f06f7"/>
 <img width="64" height="64" src="https://github.com/thammtran/thammtran/assets/145900344/855b216d-c079-49af-978a-af75055159a3"/> 
 <img width="64" height="64" src="https://github.com/thammtran/thammtran/assets/145900344/e9befc01-1cac-445b-a0ed-e5395fcd24d2"/> </p>
-<img width="500" src="https://github.com/thammtran/thammtran/assets/145900344/e7d0fd0d-ce94-44cb-a03f-bdc469a53491"/> <img width="500" src="https://github.com/thammtran/thammtran/assets/145900344/45d1da42-c243-4098-8b44-b709dca4d253"/>
+<img width="480" src="https://github.com/thammtran/thammtran/assets/145900344/e7d0fd0d-ce94-44cb-a03f-bdc469a53491"/> <img width="480" src="https://github.com/thammtran/thammtran/assets/145900344/45d1da42-c243-4098-8b44-b709dca4d253"/>
 <p align="center"> -------------♡ʚ🧁ɞ♡------------- </p> 
 <p align="center">⤷ ₊˚⊹♡ <strong>𝚑𝚘𝚋𝚋𝚒𝚎𝚜 : </strong> </p>  
 <p align="center"> ⋆ 𝚙𝚕𝚊𝚢𝚒𝚗𝚐 𝚟𝚒𝚍𝚎𝚘 𝚐𝚊𝚖𝚎𝚜 🎮 </p>
