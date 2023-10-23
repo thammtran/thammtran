@@ -1,10 +1,9 @@
 <p align="center"> <img src="https://readme-typing-svg.demolab.com?font=Monospace&pause=1000&color=F79DA7FF&random=false&width=435&lines=Hi%F0%9F%91%8B+My+name+is+Tham.+Nice+to+meet+you!;"/></p>
 
 ╔══════════ʚ*.·:·.☽✧<img width="500" height="150" src="https://github.com/thammtran/thammtran/assets/145900344/dedaa68e-b4fd-4cc5-9801-e7b7a8c176a3"/> ✧☾.·:·.*ɞ════════════╗ <br><br>
-
 <p align="center"> <img src="https://github.com/thammtran/thammtran/assets/145900344/c1b48a76-e8c3-43d8-80bf-5b82a032c30c"/> </p>
 <p align="center"> <img width="80" height="50" src="https://github.com/thammtran/thammtran/assets/145900344/6a4d6981-29f1-4302-bafb-1880bd15e523"/> </p> 
-<p align="center"><img width="580" src="https://github.com/thammtran/thammtran/assets/145900344/45d1da42-c243-4098-8b44-b709dca4d253"/> </p> 
+<p align="center"><img width="580" height="300" src="https://github.com/thammtran/thammtran/assets/145900344/45d1da42-c243-4098-8b44-b709dca4d253"/> </p> 
 
 <p align="center">    -------------♡ʚ🍰ɞ♡-------------  </p>
 <p align="center">⤷ ⊹₊ㆍ✿ㆍ<strong>𝚗𝚊𝚖𝚎 : </strong> 𝚃𝚑𝚊𝚖 𝚃𝚛𝚊𝚗 (𝚜𝚑𝚎/𝚑𝚎𝚛) 🌸🌷</p>
@@ -32,8 +31,8 @@
 <p align="center"><p align="center"> <img src="https://spotify-github-profile.vercel.app/api/view?uid=y4cybxhvrhxezqsn20byqpha7&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=a275f5&bar_color_cover=false"/> </p>
 
 <p align="center"> -------------♡ʚ🍨ɞ♡------------- </p>
-<p align="center"> <img src="https://github.com/thammtran/thammtran/assets/145900344/69724181-6f88-44da-be7c-cc98f62c1089"/>
 <p align="center">⤷₊‧.°.⋆ <strong> 𝚌𝚘𝚗𝚝𝚊𝚌𝚝 𝚖𝚎 </strong> •˚₊‧⋆.</p>  
+<p align="center"> <img src="https://github.com/thammtran/thammtran/assets/145900344/69724181-6f88-44da-be7c-cc98f62c1089"/>
 <p align="center"> ⋆ <strong>𝚕𝚒𝚗𝚔𝚎𝚍𝚒𝚗 : </strong>𝚠𝚠𝚠.𝚕𝚒𝚗𝚔𝚎𝚍𝚒𝚗.𝚌𝚘𝚖/𝚒𝚗/𝚝𝚑𝚊𝚖𝚖𝚝𝚛𝚊𝚗 🌐 </p>
 <p align="center"> ⋆ <strong>𝚎𝚖𝚊𝚒𝚕 : </strong> 𝚝𝚑𝚊𝚖𝚖𝚊𝚒𝚝𝚛𝚊𝚗@𝚐𝚖𝚊𝚒𝚕.𝚌𝚘𝚖 📧</p> 
  <p align="center"><img width="580" src="https://github.com/thammtran/thammtran/assets/145900344/e7d0fd0d-ce94-44cb-a03f-bdc469a53491"/></p>
