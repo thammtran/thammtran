@@ -1,7 +1,10 @@
 <p align="center"> <img width="80" height="50" src="https://github.com/thammtran/thammtran/assets/145900344/6a4d6981-29f1-4302-bafb-1880bd15e523" title="Cute pink bow gif"/> </p> 
+
 <p align="center"> <img src="https://readme-typing-svg.demolab.com?font=Monospace&pause=1000&color=F79DA7FF&random=false&width=435&lines=Hi%F0%9F%91%8B+My+name+is+Tham.+Nice+to+meet+you!;"/></p>
 ╔══════════ʚ*.·:·.☽✧<img width="500" height="150" src="https://github.com/thammtran/thammtran/assets/145900344/dedaa68e-b4fd-4cc5-9801-e7b7a8c176a3"/> ✧☾.·:·.*ɞ════════════╗ <br><br>
 <p><img title="sailor moon but she&#39;s a lofi girl bc she deserves it" href="https://youtu.be/nTQUwghvy5Q" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen src="https://i.pinimg.com/originals/cd/8e/82/cd8e82fcb59e4e274ce6e296a5caac5e.gif"/></p>
+
+
 <p align="center">    -------------♡ʚ🍰ɞ♡-------------  </p>
 <p align="center">⤷ ⊹₊ㆍ✿ㆍ<strong>𝚗𝚊𝚖𝚎 : </strong> 𝚃𝚑𝚊𝚖 𝚃𝚛𝚊𝚗 (𝚜𝚑𝚎/𝚑𝚎𝚛) 🌸🌷</p>
 <p align="center">⤷ ♡⊹ <strong>𝚏𝚕𝚞𝚎𝚗𝚝 𝚒𝚗: : </strong> 𝚟𝚒𝚎𝚝𝚗𝚊𝚖𝚎𝚜𝚎 🇻🇳 </p>
@@ -12,7 +15,8 @@
 <p align="center"> <img src="https://github.com/thammtran/thammtran/assets/145900344/3caaca1b-7025-43ae-b697-95c35a5f06f7"/>
 <img width="64" height="64" src="https://github.com/thammtran/thammtran/assets/145900344/855b216d-c079-49af-978a-af75055159a3"/> 
 <img width="64" height="64" src="https://github.com/thammtran/thammtran/assets/145900344/e9befc01-1cac-445b-a0ed-e5395fcd24d2"/> </p>
-<img width="480" src="https://github.com/thammtran/thammtran/assets/145900344/e7d0fd0d-ce94-44cb-a03f-bdc469a53491"/> <img width="480" src="https://github.com/thammtran/thammtran/assets/145900344/45d1da42-c243-4098-8b44-b709dca4d253"/>
+<img width="450" src="https://github.com/thammtran/thammtran/assets/145900344/e7d0fd0d-ce94-44cb-a03f-bdc469a53491"/> <img width="450" src="https://github.com/thammtran/thammtran/assets/145900344/45d1da42-c243-4098-8b44-b709dca4d253"/>
+
 <p align="center"> -------------♡ʚ🧁ɞ♡------------- </p> 
 <p align="center">⤷ ₊˚⊹♡ <strong>𝚑𝚘𝚋𝚋𝚒𝚎𝚜 : </strong> </p>  
 <p align="center"> ⋆ 𝚙𝚕𝚊𝚢𝚒𝚗𝚐 𝚟𝚒𝚍𝚎𝚘 𝚐𝚊𝚖𝚎𝚜 🎮 </p>
@@ -23,32 +27,22 @@
 <p align="center"> <img width="580" src="https://github.com/thammtran/thammtran/assets/145900344/1e84bb0b-6744-4885-9b7b-ec7b8edc2f9f"/> </p>
 <p align="center"> ⋆  𝚜𝚒𝚗𝚐𝚒𝚗𝚐 👩‍🎤 </p>
 <p align="center"><p align="center"> <img src="https://spotify-github-profile.vercel.app/api/view?uid=y4cybxhvrhxezqsn20byqpha7&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=a275f5&bar_color_cover=false"/> </p>
+
 <p align="center"> -------------♡ʚ🍨ɞ♡------------- </p>
 <p align="center">⤷₊‧.°.⋆ <strong> 𝚌𝚘𝚗𝚝𝚊𝚌𝚝 𝚖𝚎 </strong> •˚₊‧⋆.</p>  
 <p align="center"> ⋆ <strong>𝚕𝚒𝚗𝚔𝚎𝚍𝚒𝚗 : </strong>𝚠𝚠𝚠.𝚕𝚒𝚗𝚔𝚎𝚍𝚒𝚗.𝚌𝚘𝚖/𝚒𝚗/𝚝𝚑𝚊𝚖𝚖𝚝𝚛𝚊𝚗 🌐 </p>
 <p align="center"> ⋆ <strong>𝚎𝚖𝚊𝚒𝚕 : </strong> 𝚝𝚑𝚊𝚖𝚖𝚊𝚒𝚝𝚛𝚊𝚗@𝚐𝚖𝚊𝚒𝚕.𝚌𝚘𝚖 📧</p> 
 <p align="center"> <img src="https://github.com/thammtran/thammtran/assets/145900344/69724181-6f88-44da-be7c-cc98f62c1089"/>
+ 
 <p align="center"> -------------♡ʚ🍭ɞ♡------------- </p> 
-<p align="center"> <img width="500" src="https://github.com/thammtran/thammtran/assets/145900344/e7408691-48fe-4dad-8fee-0adf0667dfea"/> </p>
-<p align="center"> <img width="500" src="https://github.com/thammtran/thammtran/assets/145900344/05b09686-0fdd-4378-8e74-c82ce25b2ba8)"/></p>
 <p align="center"> <img width="500" src="https://github.com/thammtran/thammtran/assets/145900344/875037d1-4d42-4f4e-a5b1-093db52592c4"/></p>
+<p align="center"> <img width="500" src="https://github.com/thammtran/thammtran/assets/145900344/05b09686-0fdd-4378-8e74-c82ce25b2ba8)"/></p>
 <p align="center"> <img width="500" src="https://github.com/thammtran/thammtran/assets/145900344/b3dacd34-d877-4f51-8327-b33337d720ab"/></p>
 <p align="center"> <img width="500" src="https://github.com/thammtran/thammtran/assets/145900344/2695fadf-ab41-4dad-82db-470dd5fc1247"/> </p>
 <p align="center"> ⸜(｡˃ ᵕ ˂ )⸝♡ 𝚑𝚊𝚟𝚎 𝚊 𝚐𝚛𝚎𝚊𝚝 𝚍𝚊𝚢 <3!! 🌞🌈 ~~ </p>
  <p align="center"> <img width="200" height="200" src="https://github.com/thammtran/thammtran/assets/145900344/a11a2944-a7b1-45ee-b0cc-f5bde1e9788f"/> </p>
+ 
 ╚═════════════════════════════════ʚ*.·:·.☽✧ ✦ ✧☾.·:·.*ɞ═════════════════════════════════════╝ <br> <br>
  
 ![3a6db835c78c33a3d4dad3dc7f8d8569](https://github.com/thammtran/thammtran/assets/145900344/c1b48a76-e8c3-43d8-80bf-5b82a032c30c)
 <p align="center"> 𝚙𝚜𝚜𝚝... 𝚍𝚘𝚎𝚜 𝚊𝚗𝚢𝚘𝚗𝚎 𝚎𝚕𝚜𝚎 𝚖𝚒𝚜𝚜 𝚖𝚢𝚜𝚙𝚊𝚌𝚎 𝚝𝚘𝚘? </p>
-<!--
-**thammtran/thammtran** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...  
-
