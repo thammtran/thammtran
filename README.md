@@ -29,8 +29,7 @@
      <p align="center">⤷ ♡⊹ <strong>𝚏𝚕𝚞𝚎𝚗𝚝 𝚒𝚗: </strong> 𝚟𝚒𝚎𝚝𝚗𝚊𝚖𝚎𝚜𝚎 & 𝚎𝚗𝚐𝚕𝚒𝚜𝚑 🗣 
      <p align="center"> ⤷ ✿˚<strong>𝚌𝚊𝚛𝚎𝚎𝚛 : </strong> 𝚠𝚎𝚋 𝚍𝚎𝚟𝚎𝚕𝚘𝚙𝚎𝚛 👩‍💻👷‍♀️  
      <p align="center"> <img src="https://github.com/thammtran/thammtran/assets/145900344/3caaca1b-7025-43ae-b697-95c35a5f06f7" alt="This is the HTML icon"/> 
-       <img width="64" height="64" src="https://github.com/thammtran/thammtran/assets/145900344/855b216d-c079-49af-978a-af75055159a3" alt="This is the CSS icon"/> 
-       <img width="64" height="64" src="https://github.com/thammtran/thammtran/assets/145900344/e9befc01-1cac-445b-a0ed-e5395fcd24d2"alt="This is the Javascript icon"/> </p>           
+       <img width="64" height="64" src="https://github.com/thammtran/thammtran/assets/145900344/855b216d-c079-49af-978a-af75055159a3" alt="This is the CSS icon"/>        
   <p align="center"><img width="580" height="300" src="https://github.com/thammtran/thammtran/assets/145900344/45d1da42-c243-4098-8b44-b709dca4d253" alt="This is a moving image of typing on a keyboard"/> </p> 
   <p align="center"> -------------♡ʚ🧁ɞ♡------------- 
  
